@@ -10,7 +10,7 @@ the readme along with a formal letter including my watermark posted.
 Any  consumer sales needs written permission by me:
 
 Diana Kanecki
-P.O. Box 86251
+P.O. Box 85251
 Racine, WI 53406
 UNITED STATES
 
